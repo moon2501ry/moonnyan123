@@ -1,4 +1,4 @@
-<h1>Ryan Amorim Olivera's Profile</h1>
+<h1>Ryan Amorim Oliveira's Profile</h1>
 
 - ♂️ Gender Masculine
 - ⏳ 14 years old
